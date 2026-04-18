@@ -1,1 +1,95 @@
+HACKNG ÉTICO
+
+
+
+
+
+_ .-') _              ) (`-.        ('-.  _ .-') _   
+( (  OO) )              ( OO ).    _(  OO)( (  OO) )  
+ \     .'_  .-'),-----.(_/.  \_)-.(,------.\     .'_  
+ ,`'--..._)( OO'  .-.  '\  `.'  /  |  .---',`'--..._) 
+ |  |  \  '/   |  | |  | \     /\  |  |    |  |  \  ' 
+ |  |   ' |\_) |  |\|  |  \   \ | (|  '--. |  |   ' | 
+ |  |   / :  \ |  | |  | .'    \_) |  .--' |  |   / : 
+ |  '--'  /   `'  '-'  '/  .'.  \  |  `---.|  '--'  / 
+ `-------'      `-----''--'   '--' `------'`-------'
+                    | DROPPED BY VortalSyn |
+================================================================
+Reason:
+================================================================= 
+1.Basic Information                                              \
+2.Family                                                          \
+3.IP Information                                                   \                                                 
+=====================================================================
+                    | BASIC INFORMATION |
+=====================================================================
+First Name: STEPHEN R RUTLEDGE
+Social Security Number: 423744833
+Last Name: Ruthledge
+Dad's Name: JOYOUS MONTGOMERY
+Dads Social Security Number: 088468075
+Dads Phone Number: +1 (516) 489-2267
+Moms Name: TRACIE RUTLEDGE
+Moms Social Security Number: 066667279 
+Relatives: ELIZABETH A RUTLEDGE , LINDA MONTGOMERY, JOHNNIE MONTGOMERY ,  PETER ML G RUTLEDGE 
+Relatives Social Security Number: 066667279, 417927900, 419900256, 121169667, 064421543, 088468075
+Address: 456 New York Ave North Baldwin Nassau NY 11510
+City: North Baldwin
+Country: United States
+State: New York
+Timezone: EDT/EST
+Postal Code: 11510
+Alias: Sero, wildturtle32
+Phone Number: +1 (347) 846-9378
+Brand: T Mobile
+Region: New York
+Timezone: America/New York
+=====================================================================
+                    | Vehicle Information |
+=====================================================================	
+License Plate: ITZCHEWY
+VIN Number: WBSJF0C54KB448395
+Model: 2019 BMW M5 COMPETITION
+Type: SEDAN 4 DR
+Engine: 4.4L V8 F DOHC 32V
+Gas Type: Gasoline
+Vehicle Drive: All Wheel Drive
+Year Purchased: 2019
+Estimated length of ownership: 1 Year & 1 month
+
+					| DON'T FUCK WITH ME SKID |
+          _ .-') _              ) (`-.        ('-.  _ .-') _   
+( (  OO) )              ( OO ).    _(  OO)( (  OO) )  
+ \     .'_  .-'),-----.(_/.  \_)-.(,------.\     .'_  
+ ,`'--..._)( OO'  .-.  '\  `.'  /  |  .---',`'--..._) 
+ |  |  \  '/   |  | |  | \     /\  |  |    |  |  \  ' 
+ |  |   ' |\_) |  |\|  |  \   \ | (|  '--. |  |   ' | 
+ |  |   / :  \ |  | |  | .'    \_) |  .--' |  |   / : 
+ |  '--'  /   `'  '-'  '/  .'.  \  |  `---.|  '--'  / 
+ `-------'      `-----''--'   '--' `------'`-------'
+
+  ____            _     _       
+ |  _ \  _____  _| |__ (_)_ __  
+ | | | |/ _ \ \/ / '_ \| | '_ \ 
+ | |_| | (_) >  <| |_) | | | | |
+ |____/ \___/_/\_\_.__/|_|_| |_|
+Title:
+Sero Osint tool owner
+Created:
+Jul 21, 2025
+Author:
+umcl
+Views:
+468
+Comments:
+4
+StarGanz - Nov 4, 2025
+1
+Anonymous - Jul 22, 2025
+join https://discord.gg/b2drP6Db we finna drop a lotta OP methods soon my niggas
+Anonymous - Jul 22, 2025
+Heil Hitler! White power! Join us at skibidifarms.st / skibidi.farm
+4FA [Rich] - Jul 21, 2025
+Gas Type: Gasoline
+Please note that all posted information is publicly available and must follow our TOS.
 # DoxxerX
